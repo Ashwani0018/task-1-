@@ -1,1 +1,1 @@
-# task-1-
+code case internship codes
